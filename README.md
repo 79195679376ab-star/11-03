@@ -34,7 +34,8 @@
 
 ### Задание 3
 
-<img width="1920" height="1080" alt="image" src="https://github.com/user-attachments/assets/42d5adbc-6ddb-49ba-87fd-ae8332625e73" />
+<img width="1920" height="1080" alt="image" src="https://github.com/user-attachments/assets/796f6098-277a-4861-884d-a02dce0c2624" />
+
 
 
 ### Задание 4
